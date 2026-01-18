@@ -1,0 +1,1 @@
+sadəcə olaraq 
